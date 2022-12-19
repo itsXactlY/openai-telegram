@@ -10,4 +10,4 @@
 
 
 
-give it a minute to start on first start, have fun! ;)
+Give it a minute to start on your first startup. Have fun! ;)
